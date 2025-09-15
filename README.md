@@ -204,10 +204,6 @@ with #Excel  #SQL  #PowerBi
 
 https://www.linkedin.com/in/ahmed-abdelrahman-57b32b342/
 
-!(https://github.com/user-attachments/assets/d7c289d1-9188-441c-bf34-e47350fb212e)
-!(https://github.com/user-attachments/assets/38925cc5-7649-41cb-b5d0-e3090a8770dc)
-!(https://github.com/user-attachments/assets/d3a6fd0f-a41f-45da-b372-6c8c1a0dc1e1)
-!(https://github.com/user-attachments/assets/61e75d4f-139a-4971-9c71-b7225d8f6f64)
 
 
 
